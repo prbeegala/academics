@@ -22,7 +22,7 @@ A focused crib sheet for the trickiest SPAG topics. Read through twice; cover an
 
 ## 2. Sentence structures
 - **Simple:** one main clause. *Srita revised.*
-- **Compound:** two main clauses joined by **FANBOYS** (for, and, nor, but, or, yet, so). *Srita revised, **but** her brother played.*
+- **Compound:** two main clauses joined by **FANBOYS** (for, and, nor, but, or, yet, so). *Srita revised, **but** her sister played.*
 - **Complex:** main clause + subordinate clause introduced by a **subordinating conjunction** (because, although, while, when, if, since, until, before, after, even though). *Although it was late, Srita revised.*
 
 > **Tip:** A subordinate clause **cannot** stand alone as a sentence.
