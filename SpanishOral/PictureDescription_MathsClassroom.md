@@ -13,15 +13,15 @@ A bright classroom with children working in a maths lesson: some are drawing sha
 
 ## 🇪🇸 Discurso en Español (≈ 2 minutos)
 
-¡Hola! Me llamo Shrishti y voy a describir esta imagen. En la foto hay un aula muy alegre y colorida, y creo que es mi clase de matemáticas en el colegio. Las paredes son amarillas, el suelo es azul oscuro y hay mucha luz natural porque la ventana está abierta.
+¡Hola! Me llamo Shrishti y voy a describir esta imagen. En la foto hay un aula muy alegre y colorida, y es mi clase de matemáticas en el colegio. Las paredes son amarillas, el suelo es azul oscuro y hay mucha luz porque la ventana está abierta.
 
-En la imagen hay nueve niños y niñas, y todos tenemos más o menos la misma edad. Estamos en la lección de matemáticas y, como puedes ver, estamos haciendo actividades diferentes. A la izquierda, hay una mesa redonda con tres niños. Un chico moreno lleva una camiseta blanca y está escribiendo números en su cuaderno con un rotulador rojo. A su lado, una chica con dos trenzas lleva un vestido verde y está pensando mucho porque el ejercicio es un poco difícil. Enfrente de ellos, otra chica está dibujando formas geométricas: un triángulo, un cuadrado y un círculo.
+En la imagen hay nueve niños y todos tenemos más o menos la misma edad. Estamos en la lección de matemáticas y, como puedes ver, estamos haciendo actividades diferentes. A la izquierda, hay una mesa redonda con tres niños. Un chico moreno lleva una camiseta blanca y está escribiendo números en su cuaderno con un rotulador rojo. A su lado, una chica con dos trenzas lleva un vestido verde y está pensando mucho porque el ejercicio es un poco difícil. Enfrente de ellos, otra chica está dibujando un triángulo, un cuadrado y un círculo.
 
-En el centro de la imagen, un chico rubio está sentado en el suelo con un libro azul. Debajo de él, mi amigo lleva un jersey rojo y juega con números grandes de muchos colores.
+En el centro de la imagen, un chico rubio está sentado en el suelo con un libro azul. Debajo de él, mi amigo lleva un jersey rojo y está jugando con números grandes y coloridos.
 
-A la derecha hay otra mesa redonda con cuatro niños. Una chica pelirroja con un lazo está hablando con un chico que lleva gafas; él es muy inteligente y siempre ayuda a los demás. Otra chica con una diadema roja está usando una calculadora azul, ¡y a su lado estoy yo trabajando!
+A la derecha hay otra mesa redonda con cuatro niños. Una chica con un lazo rojo está hablando con un chico que lleva gafas; él es muy inteligente y siempre ayuda a todos. Otra chica con una diadema roja está usando una calculadora, ¡y a su lado estoy yo trabajando!
 
-Al fondo se ve una cómoda de madera con una planta verde. También hay un reloj rojo en la pared. Hay tres dibujos en la pared, pero ¿sabes una cosa? ¡El de la manzana es mío! Lo dibujé la semana pasada en la clase de arte y la profesora lo puso en la pared. Estoy muy orgullosa.
+Al fondo se ve una cómoda de madera con una planta verde. También hay un reloj rojo en la pared. Hay tres dibujos en la pared, ¡pero el de la manzana es mío!
 
 En mi opinión, esta imagen es muy bonita porque muestra que aprender matemáticas puede ser divertido cuando trabajamos juntos. Mi asignatura favorita es matemáticas, pero también me gusta mucho el español.
 
@@ -75,7 +75,7 @@ In my opinion, this picture is very lovely because it shows that learning maths 
 
 - Speak slowly and clearly — about 250–270 words = ~2 minutes.
 - Pause briefly at each paragraph to breathe.
-- Stress the personal bits ("**Yo dibujé** el arcoíris…", "**Mi** asignatura favorita…") — examiners love personal opinions.
+- Stress the personal bits ("**el de la manzana es mío**", "**Mi** asignatura favorita…") — examiners love personal opinions.
 - If you forget a word, say *"¿cómo se dice…?"* and describe it instead — don't switch to English.
 - End with a friendly "**¡Muchas gracias!**" and a smile.
 
