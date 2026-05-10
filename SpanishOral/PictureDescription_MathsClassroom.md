@@ -29,17 +29,12 @@ En mi opinión, esta imagen es muy bonita porque muestra que aprender matemátic
 
 ## 🇬🇧 English Translation
 
-Hi! My name is Shrishti and I am going to describe this picture. In the photo there is a very cheerful and colourful classroom, and I think it is my maths class at school. The walls are yellow, the floor is dark blue, and there is a lot of natural light because the window is open.
-
-In the picture there are nine children, and we are all roughly the same age. We are in our maths lesson and, as you can see, we are doing different activities. On the left, there is a round table with three children. A boy with dark hair is wearing a white t-shirt and writing numbers in his notebook with a red marker. Next to him, a girl with two plaits is wearing a green dress and thinking hard because the exercise is a bit difficult. Opposite them, another girl is drawing geometric shapes: a triangle, a square and a circle.
-
-In the middle of the picture, a blond boy is sitting on the floor with a blue book and the yellow number two. Below him, my friend is wearing a red jumper and playing with big colourful numbers: the green five, the red six, the "equals" sign and the "times" sign. It's like a maths puzzle!
-
-On the right there is another round table with four children. A red-haired girl with a bow is talking to a boy who wears glasses; he is very clever and always helps everyone. Another girl with a red headband is using a blue calculator, and next to her there is a girl who smiles a lot.
-
-At the back you can see a wooden chest of drawers with a green plant, a colourful abacus and a globe. There is also a red clock on the wall and it is ten to four. The most important thing for me: can you see the three pictures on the wall? The apple, the rainbow and the person with the dog. I drew the rainbow picture last week in art class and the teacher put it up on the wall! I am very proud.
-
-In my opinion, this picture is very lovely because it shows that learning maths can be fun when we work together. My favourite subject is maths, but I also really like Spanish. Thank you very much for listening!
+Hi! My name is Shrishti and I am going to describe this picture. In the photo there is a cheerful and colourful classroom, and it is my maths class at school. The walls are yellow, the floor is dark blue, and there is a lot of light because the window is open.
+In the picture there are nine children, and we are all roughly the same age. We are in our maths lesson and, as you can see, we are doing different activities. On the left, there is a round table with three children. A boy with dark hair is wearing a white t-shirt and writing numbers in his notebook with a red marker. Next to him, a girl with two plaits is wearing a green dress and thinking hard because the exercise is a bit difficult. Opposite them, another girl is drawing a triangle, a square and a circle.
+In the middle of the picture, a blond boy is sitting on the floor with a blue book. Below him, my friend is wearing a red jumper and playing with big colourful numbers.
+On the right there is another round table with four children. A girl with a red bow is talking to a boy who wears glasses; he is very clever and always helps everyone. Another girl with a red headband is using a calculator, and next to her I am working!
+At the back you can see a wooden chest of drawers with a green plant. There is also a red clock on the wall. There are three pictures on the wall, but the one with the apple is mine!
+In my opinion, this picture is very lovely because it shows that learning maths can be fun when we work together. My favourite subject is maths, but I also really like Spanish.
 
 ---
 
