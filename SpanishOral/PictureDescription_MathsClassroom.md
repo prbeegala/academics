@@ -29,7 +29,7 @@ En mi opinión, esta imagen es muy bonita porque muestra que aprender matemátic
 
 ## 🇬🇧 English Translation
 
-Hi! My name is Shrishti and I am going to describe this picture. In the photo there is a cheerful and colourful classroom, and it is my maths class at school. The walls are yellow, the floor is dark blue, and there is a lot of light because the window is open.
+Hi! My name is Shrishti and I am going to describe this picture. In the photo there is a very cheerful and colourful classroom, and it is my maths class at school. The walls are yellow, the floor is dark blue, and there is a lot of light because the window is open.
 In the picture there are nine children, and we are all roughly the same age. We are in our maths lesson and, as you can see, we are doing different activities. On the left, there is a round table with three children. A boy with dark hair is wearing a white t-shirt and writing numbers in his notebook with a red marker. Next to him, a girl with two plaits is wearing a green dress and thinking hard because the exercise is a bit difficult. Opposite them, another girl is drawing a triangle, a square and a circle.
 In the middle of the picture, a blond boy is sitting on the floor with a blue book. Below him, my friend is wearing a red jumper and playing with big colourful numbers.
 On the right there is another round table with four children. A girl with a red bow is talking to a boy who wears glasses; he is very clever and always helps everyone. Another girl with a red headband is using a calculator, and next to her I am working!
