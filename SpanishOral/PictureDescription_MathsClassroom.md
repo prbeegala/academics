@@ -17,13 +17,13 @@ A bright classroom with children working in a maths lesson: some are drawing sha
 
 En la imagen hay nueve niños y niñas, y todos tenemos más o menos la misma edad. Estamos en la lección de matemáticas y, como puedes ver, estamos haciendo actividades diferentes. A la izquierda, hay una mesa redonda con tres niños. Un chico moreno lleva una camiseta blanca y está escribiendo números en su cuaderno con un rotulador rojo. A su lado, una chica con dos trenzas lleva un vestido verde y está pensando mucho porque el ejercicio es un poco difícil. Enfrente de ellos, otra chica está dibujando formas geométricas: un triángulo, un cuadrado y un círculo.
 
-En el centro de la imagen, un chico rubio está sentado en el suelo con un libro azul y el número dos amarillo. Debajo de él, mi amigo lleva un jersey rojo y juega con números grandes de colores: el cinco verde, el seis rojo, el símbolo de "igual" y el símbolo de "por". ¡Es como un puzle de matemáticas!
+En el centro de la imagen, un chico rubio está sentado en el suelo con un libro azul. Debajo de él, mi amigo lleva un jersey rojo y juega con números grandes de muchos colores.
 
-A la derecha hay otra mesa redonda con cuatro niños. Una chica pelirroja con un lazo está hablando con un chico que lleva gafas; él es muy inteligente y siempre ayuda a los demás. Otra chica con una diadema roja está usando una calculadora azul, y al lado hay una niña que sonríe mucho.
+A la derecha hay otra mesa redonda con cuatro niños. Una chica pelirroja con un lazo está hablando con un chico que lleva gafas; él es muy inteligente y siempre ayuda a los demás. Otra chica con una diadema roja está usando una calculadora azul, ¡y a su lado estoy yo trabajando!
 
-Al fondo se ve una cómoda de madera con una planta verde, un ábaco de muchos colores y un globo terráqueo. También hay un reloj rojo en la pared y son las cuatro menos diez. Lo más importante para mí: ¿ves los tres dibujos en la pared? La manzana, el arcoíris y la persona con el perro. ¡Yo dibujé el dibujo del arcoíris la semana pasada en la clase de arte y la profesora lo puso en la pared! Estoy muy orgullosa.
+Al fondo se ve una cómoda de madera con una planta verde. También hay un reloj rojo en la pared. Hay tres dibujos en la pared, pero ¿sabes una cosa? ¡El de la manzana es mío! Lo dibujé la semana pasada en la clase de arte y la profesora lo puso en la pared. Estoy muy orgullosa.
 
-En mi opinión, esta imagen es muy bonita porque muestra que aprender matemáticas puede ser divertido cuando trabajamos juntos. Mi asignatura favorita es matemáticas, pero también me gusta mucho el español. ¡Muchas gracias por escuchar!
+En mi opinión, esta imagen es muy bonita porque muestra que aprender matemáticas puede ser divertido cuando trabajamos juntos. Mi asignatura favorita es matemáticas, pero también me gusta mucho el español.
 
 ---
 
