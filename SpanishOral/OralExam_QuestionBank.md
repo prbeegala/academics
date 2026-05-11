@@ -39,7 +39,7 @@
 
 ---
 
-### 2. Describe a tu madre / tu abuelo / tu hermano.
+### 2. Describe a tu madre/tu hermana.
 **🇪🇸** Mi madre se llama Jyothi y tiene cuarenta años. Es bastante alta, tiene el pelo castaño y los ojos marrones. Es muy simpática, paciente y trabajadora. Le encanta cocinar y leer. **Me llevo muy bien con ella** porque siempre me ayuda con los deberes.
 
 Mi hermana es divertida pero a veces puede ser un poco molesta. Tiene el pelo negro y es muy hablador. **Aunque** a veces nos peleamos, la quiero mucho.
