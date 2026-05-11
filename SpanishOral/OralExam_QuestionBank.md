@@ -32,7 +32,7 @@
 ## 👨‍👩‍👧 LAS RELACIONES PERSONALES (Personal Relationships)
 
 ### 1. ¿Cuántas personas hay en tu familia?
-**🇪🇸** Hay cuarto personas en mi familia: mi madre, mi padre, mi hermana menore y yo. Sin embargo, no tenemos mascota. Somos una familia pequeña pero muy unida.
+**🇪🇸** Hay cuarto personas en mi familia: mi madre, mi padre, mi hermana menore y yo. Sin embargo, no tenemos mascota. 
 
 **🇬🇧** There are four people in my family: my father, my mother, my younger sister and me. However, we do not have a pet.
 > ✏️ Adjust numbers and family members to match your real family.
