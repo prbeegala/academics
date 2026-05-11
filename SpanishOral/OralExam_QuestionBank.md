@@ -32,52 +32,51 @@
 ## 👨‍👩‍👧 LAS RELACIONES PERSONALES (Personal Relationships)
 
 ### 1. ¿Cuántas personas hay en tu familia?
-**🇪🇸** En mi familia somos cuatro personas: mi padre, mi madre, mi hermano pequeño y yo. También tenemos una mascota. Somos una familia pequeña pero muy unida.
+**🇪🇸** Hay cuarto personas en mi familia: mi madre, mi padre, mi hermana menore y yo. Sin embargo, no tenemos mascota. Somos una familia pequeña pero muy unida.
 
-**🇬🇧** There are four people in my family: my father, my mother, my younger brother and me. We also have a pet. We are a small but very close family.
-
+**🇬🇧** There are four people in my family: my father, my mother, my younger sister and me. However, we do not have a pet.
 > ✏️ Adjust numbers and family members to match your real family.
 
 ---
 
 ### 2. Describe a tu madre / tu abuelo / tu hermano.
-**🇪🇸** Mi madre se llama [✏️ nombre] y tiene [✏️ edad] años. Es bastante alta, tiene el pelo castaño y los ojos marrones. Es muy simpática, paciente y trabajadora. Le encanta cocinar y leer. **Me llevo muy bien con ella** porque siempre me ayuda con los deberes.
+**🇪🇸** Mi madre se llama Jyothi y tiene cuarenta años. Es bastante alta, tiene el pelo castaño y los ojos marrones. Es muy simpática, paciente y trabajadora. Le encanta cocinar y leer. **Me llevo muy bien con ella** porque siempre me ayuda con los deberes.
 
-Mi hermano es más joven que yo. Es divertido pero a veces puede ser un poco molesto. Tiene el pelo negro y es muy hablador. **Aunque** a veces nos peleamos, le quiero mucho.
+Mi hermana es divertida pero a veces puede ser un poco molesta. Tiene el pelo negro y es muy hablador. **Aunque** a veces nos peleamos, la quiero mucho.
 
-**🇬🇧** My mother is called [✏️ name] and she is [✏️ age] years old. She is quite tall, has brown hair and brown eyes. She is very kind, patient and hard-working. She loves cooking and reading. **I get on very well with her** because she always helps me with my homework.
+**🇬🇧** My mother is called Jyothi and she is 40 years old. She is quite tall, has brown hair and brown eyes. She is very kind, patient and hard-working. She loves cooking and reading. **I get on very well with her** because she always helps me with my homework.
 
-My brother is younger than me. He is funny but sometimes he can be a bit annoying. He has black hair and is very chatty. **Although** we argue sometimes, I love him a lot.
+My sister is funny but sometimes she can be a bit annoying. She has black hair and is very chatty. **Although** we argue sometimes, I love her a lot.
 
 ---
 
 ### 3. ¿Dónde viven tus abuelos?
-**🇪🇸** Mis abuelos viven en la India, en una ciudad grande. Vamos a visitarlos una o dos veces al año durante las vacaciones. **Me encanta** ir a verlos porque la comida es deliciosa y siempre hay mucho sol. Cuando no podemos ir, hablamos con ellos por videollamada.
+**🇪🇸** Mis abuelos viven en la India. Vamos a visitarlos una o dos veces al año durante las vacaciones. **Me encanta** ir a verlos porque la comida es deliciosa y siempre hay mucho sol. 
 
-**🇬🇧** My grandparents live in India, in a big city. We go to visit them once or twice a year during the holidays. **I love** going to see them because the food is delicious and it's always very sunny. When we can't go, we talk to them by video call.
+**🇬🇧** My grandparents live in India. We go to visit them once or twice a year during the holidays. **I love** going to see them because the food is delicious and it's always very sunny. 
 
 ---
 
 ### 4. ¿Cómo te llevas con tu padre / tu hermana / tus primos?
-**🇪🇸** **Me llevo muy bien con** mi padre porque es muy gracioso y me hace reír. Los fines de semana jugamos juegos de mesa juntos. Con mi hermano, normalmente me llevo bien, **aunque** a veces discutimos por tonterías. Tengo muchos primos y los veo en las vacaciones — ¡siempre nos divertimos mucho juntos!
+**🇪🇸** **Me llevo muy bien con** mi padre porque es muy gracioso y me hace reír. Los fines de semana jugamos juegos de mesa juntos. Con mi hermana, normalmente me llevo bien, **aunque** a veces discutimos por tonterías. Tengo muchos primos y los veo en las vacaciones — ¡siempre nos divertimos mucho juntos!
 
-**🇬🇧** **I get on very well with** my father because he's very funny and makes me laugh. At weekends we play board games together. With my brother, I normally get on well, **although** sometimes we argue over silly things. I have lots of cousins and I see them in the holidays — we always have so much fun together!
+**🇬🇧** **I get on very well with** my father because he's very funny and makes me laugh. At weekends we play board games together. With my sister, I normally get on well, **although** sometimes we argue over silly things. I have lots of cousins and I see them in the holidays — we always have so much fun together!
 
 ---
 
 ### 5. ¿Tienes mascotas en casa? Describe a tu perro / tu gato / tu pez.
 **🇪🇸** No tengo mascotas en casa porque mis padres dicen que somos demasiado ocupados, pero **me gustaría** tener un perro pequeño. Sería marrón y blanco, muy juguetón y cariñoso. Le llamaría [✏️ nombre]. Mi amiga tiene un gato negro que se llama Luna y es muy divertido.
 
-**🇬🇧** I don't have any pets at home because my parents say we're too busy, but **I would like** to have a small dog. It would be brown and white, very playful and affectionate. I would call it [✏️ name]. My friend has a black cat called Luna and it's very funny.
+**🇬🇧** I don't have any pets at home because my parents say we're too busy, but **I would like** to have a small dog. It would be brown and white, very playful and affectionate. I would call it Coco.
 
 > ✏️ If you DO have a pet, swap in: *Sí, tengo un/una… que se llama… Es muy…*
 
 ---
 
 ### 6. ¿Qué lengua(s) hablas en casa?
-**🇪🇸** En casa hablo dos lenguas: inglés con mis padres y mi hermano, y a veces hablo un poco de hindi/telugu con mis abuelos. En el colegio estudio español y francés. **Creo que** es muy útil hablar varias lenguas porque puedes conocer a más personas.
+**🇪🇸** En casa hablo dos lenguas: inglés con mis padres y mi hermana,y a veces hablo telugu con mis abuelos. En el colegio estudio español y francés. 
 
-**🇬🇧** At home I speak two languages: English with my parents and my brother, and sometimes I speak a bit of Hindi/Telugu with my grandparents. At school I study Spanish and French. **I think** it's very useful to speak several languages because you can meet more people.
+**🇬🇧** At home I speak two languages: English with my parents and my sister, and sometimes I speak Telugu with my grandparents. At school I study Spanish and French. 
 
 > ✏️ Adjust the languages to match what you actually speak at home.
 
@@ -91,9 +90,9 @@ My brother is younger than me. He is funny but sometimes he can be a bit annoyin
 ---
 
 ### 8. Describe a tu mejor amigo/a. ¿Por qué te llevas bien con él/ella?
-**🇪🇸** Mi mejor amiga se llama [✏️ nombre]. Es alta, tiene el pelo largo y rizado y los ojos verdes. Es muy simpática, divertida y generosa. Nos conocemos desde hace [✏️ número] años. **Me llevo muy bien con ella porque** tenemos los mismos gustos: nos encanta la música, los libros y reírnos juntas. Siempre me escucha cuando tengo un problema.
+**🇪🇸** Mi mejor amiga se llama Leyla. Es alta, tiene el pelo largo y rizado y los ojos verdes. Es muy simpática, divertida y generosa. Nos conocemos desde hace [✏️ número] años. **Me llevo muy bien con ella porque** tenemos los mismos gustos: nos encanta la música, los libros y reírnos juntas. Siempre me escucha cuando tengo un problema.
 
-**🇬🇧** My best friend is called [✏️ name]. She is tall, has long curly hair and green eyes. She is very kind, funny and generous. We have known each other for [✏️ number] years. **I get on very well with her because** we have the same tastes: we love music, books and laughing together. She always listens to me when I have a problem.
+**🇬🇧** My best friend is called Leyla. She is tall, has long curly hair and green eyes. She is very kind, funny and generous. We have known each other for [✏️ number] years. **I get on very well with her because** we have the same tastes: we love music, books and laughing together. She always listens to me when I have a problem.
 
 ---
 
