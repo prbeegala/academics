@@ -134,9 +134,9 @@ My sister is funny but sometimes she can be a bit annoying. She has black hair a
 ---
 
 ### 6. ¿Qué hay para los jóvenes / los turistas?
-**🇪🇸** Para los jóvenes hay muchísimas cosas que hacer: cines, centros comerciales, parques, pistas de patinaje y cafés bonitos. Para los turistas hay monumentos famosos como el Big Ben, el Palacio de Buckingham, el London Eye y el Museo Británico. **Creo que** nunca te aburres en Londres.
+**🇪🇸** Para los jóvenes hay muchísimas cosas que hacer: cines, centros comerciales, parques, pistas de patinaje y cafés bonitos. **Creo que** nunca te aburres en Londres.
 
-**🇬🇧** For young people there are loads of things to do: cinemas, shopping centres, parks, skating rinks and lovely cafés. For tourists there are famous monuments like Big Ben, Buckingham Palace, the London Eye and the British Museum. **I think** you never get bored in London.
+**🇬🇧** For young people there are loads of things to do: cinemas, shopping centres, parks, skating rinks and lovely cafés. **I think** you never get bored in London.
 
 ---
 
