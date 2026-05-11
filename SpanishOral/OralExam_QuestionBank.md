@@ -65,9 +65,9 @@ My sister is funny but sometimes she can be a bit annoying. She has black hair a
 ---
 
 ### 5. ¿Tienes mascotas en casa? Describe a tu perro / tu gato / tu pez.
-**🇪🇸** No tengo mascotas en casa porque mis padres dicen que somos demasiado ocupados, pero **me gustaría** tener un perro pequeño. Sería marrón y blanco, muy juguetón y cariñoso. Le llamaría [✏️ nombre]. Mi amiga tiene un gato negro que se llama Luna y es muy divertido.
+**🇪🇸** No tengo mascotas en casa porque mis padres dicen que somos demasiado ocupados, pero **me gustaría** tener un perro pequeño. Sería marrón y blanco y le llamaría Coco. 
 
-**🇬🇧** I don't have any pets at home because my parents say we're too busy, but **I would like** to have a small dog. It would be brown and white, very playful and affectionate. I would call it Coco.
+**🇬🇧** I don't have any pets at home because my parents say we're too busy, but **I would like** to have a small dog. It would be brown and white and I would call it Coco.
 
 > ✏️ If you DO have a pet, swap in: *Sí, tengo un/una… que se llama… Es muy…*
 
@@ -83,9 +83,9 @@ My sister is funny but sometimes she can be a bit annoying. She has black hair a
 ---
 
 ### 7. ¿En qué trabaja tu madre / tu padre?
-**🇪🇸** Mi padre trabaja en una oficina, en informática. Le gusta mucho su trabajo porque puede resolver problemas. Mi madre trabaja [✏️ ej. en un hospital / en una escuela / en casa] y siempre está muy ocupada. **En mi opinión**, los dos trabajan mucho.
+**🇪🇸** Mi padre trabaja en una oficina, en informática. Le gusta mucho su trabajo porque puede resolver problemas. Mi madre trabaja en un hospital  y siempre está muy ocupada. **En mi opinión**, los dos trabajan mucho.
 
-**🇬🇧** My father works in an office, in IT. He really likes his job because he can solve problems. My mother works [✏️ e.g. in a hospital / in a school / at home] and she's always very busy. **In my opinion**, they both work very hard.
+**🇬🇧** My father works in an office, in IT. He really likes his job because he can solve problems. My mother works in a hospital and she's always very busy. **In my opinion**, they both work very hard.
 
 ---
 
