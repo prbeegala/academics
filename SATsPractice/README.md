@@ -28,3 +28,17 @@ Year 6 SATs preparation pack — focused practice for the week before SATs.
 - Show working in Reasoning — method marks count even if the final answer is wrong.
 
 Good luck, Srita! 🌟
+
+---
+
+## 🌙 Tonight's plan — Reading test tomorrow
+
+Materials (in this order — about **70–75 minutes total**, with breaks):
+
+1. **`RevisionSheets/Reading_RevisionSheet.md`** — 5 minutes. Quick refresher on the 6 question types, marks-vs-effort rule, and common traps.
+2. **`Papers/Reading_Comprehension_Paper2.md`** — 40 minutes. Fiction text, 25 marks. *(Save the original `Reading_Comprehension.md` if not done yet, but this new Paper 2 is fresher practice.)*
+3. **Short break** ☕
+4. **`Papers/Reading_NonFiction_Practice.md`** — 20 minutes. Non-fiction text, 15 marks. Practising non-fiction is important — many pupils find it the hardest of the three SATs texts.
+5. **Mark together** using the answer keys in `AnswerKeys/`. Don't just count marks — look at *why* any were missed.
+
+> Then early to bed. No more revision after 9pm — a rested brain reads better than a crammed one. 💤
