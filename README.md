@@ -8,6 +8,7 @@ A collection of study materials, practice papers, and revision packs.
 |---|---|
 | **[`GermanOral/`](./GermanOral/)** | 🇩🇪 5-minute German oral exam prep (A2 level) — model answers, flashcards, grammar cheatsheet, mock script, PDFs |
 | **[`EndOfYearRevision/`](./EndOfYearRevision/)** | 📐 Maths end-of-year revision — topic worksheets, mock papers, key ideas reference |
+| **[`physics-revision/`](./physics-revision/)** | ⚡ Y8 Physics end-of-year revision — Astrophysics notes plus Electronics (components, circuit diagrams, series & parallel) with topic worksheets and a mock test |
 | **[`JMC/`](./JMC/)** | 🏆 Junior Maths Challenge — past papers, daily drills, study guide |
 | **[`MathsDailyPractice/`](./MathsDailyPractice/)** | ✏️ Daily maths warm-ups — week-by-week practice with answer keys |
 
